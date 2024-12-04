@@ -1,7 +1,2 @@
-- 👋 Hi, I’m @DavideGenito
-- 👀 I’m interested in dicks
-- 🌱 I’m currently learning to suck/ride dicks 
-- 💞️ I’m looking to collaborate to the Calippo Tour
-- 📫 How to reach me: Go down the street and i'll be waiting you on the corner.
-- 😄 Pronouns: he/lo/veys/them/thicc
-- ⚡ Fun fact: im a male
+
+.
